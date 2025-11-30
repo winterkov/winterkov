@@ -3,4 +3,4 @@
 
 ꒰ঌ **some of my interests** ໒꒱ fionna and cake, utdr, umamusume, dogman, kamifubuki entertainment center, tally hall, chronovista and phighting
 
-꒰ঌ **some links** ໒꒱ tba
+꒰ঌ **some links** ໒꒱ [atabook](https://winterkov.atabook.org/) [tamanotchi](https://tamanotchi.world/27461c)
